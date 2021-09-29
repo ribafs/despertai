@@ -4,7 +4,7 @@
 
 ## Índex 
 
-- [Boas Vindas](0Inicio)
+- [Boas Vindas](https://github.com/ribafs/despertai/tree/main/0Inicio)
 - [Jesus Cristo](1JesusCristo)
 - [Amor](Amor)
 - [AutoEstima](AutoEstima)
