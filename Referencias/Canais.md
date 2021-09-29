@@ -10,8 +10,8 @@ Rodrigo Romo
 https://www.youtube.com/user/portalshtareer/videos
 
 Hélio Couto
-https://www.youtube.com/watch?v=7swjmM-WHp0&list=PL7Hop9RLqdF2CjjbGr0mDnfmIbhUIMosw
-https://www.youtube.com/watch?v=mBT39AwWVPo&list=PL0Bey_yA8k38q9-0Ufvuk50_TFwwu9XHI
+- https://www.youtube.com/watch?v=7swjmM-WHp0&list=PL7Hop9RLqdF2CjjbGr0mDnfmIbhUIMosw
+- https://www.youtube.com/watch?v=mBT39AwWVPo&list=PL0Bey_yA8k38q9-0Ufvuk50_TFwwu9XHI
 
 Cadu Cassau - Se joga, cara!
 https://www.youtube.com/user/sejogacara
@@ -42,9 +42,6 @@ https://www.youtube.com/channel/UC6A09X380DXvb-PJIvVkUaw
 
 Ricardo Maffia
 https://www.youtube.com/channel/UC4jpmLoeBEzg89zq-ZcKVPg
-
-
-Canais com apenas áudio humano ou digital
 
 As Viagens de Willy
 https://www.youtube.com/user/williamjagnow
@@ -106,11 +103,14 @@ Rômulo Maraschin
 https://www.youtube.com/channel/UCSyUhW3u3JazIT3VtE4nCEw
 
 Kryon 2012 - Proteção
-https://www.youtube.com/watch?v=NJnvS_rSrXk
+-https://www.youtube.com/watch?v=NJnvS_rSrXk
+
+Mensagens das Quartas da Cura de Agosto de 2021
+-https://www.youtube.com/watch?v=lEMmSUMhrwY
 
 Vilma Capuano
-https://www.facebook.com/vilma.capuano
-https://www.youtube.com/watch?v=0l0jj4MhUjQ
-https://www.instagram.com/blogdecoracaoacoracao/
+- https://www.facebook.com/vilma.capuano
+- https://www.youtube.com/watch?v=0l0jj4MhUjQ
+- https://www.instagram.com/blogdecoracaoacoracao/
 
 
