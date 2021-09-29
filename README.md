@@ -1,6 +1,12 @@
+<<<<<<< HEAD
 # Despertar da Consciência
 ## -- AGUARDE POR FAVOR --
 ## Informações úteis que tenho colhido de alguns sites e canais para o despertar
+=======
+# Despertar da Consciência - EM CONSTRUÇÃO
+
+## Informações úteis para o despertar
+>>>>>>> 7407f9b618db88518fe4f02c80b1bf94749807b8
 
 ## Índex 
 
