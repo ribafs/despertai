@@ -1,6 +1,6 @@
 # Despertar da Consciência
 ## -- AGUARDE POR FAVOR --
-## Informações úteis para o despertar
+## Informações úteis que tenho colhido de alguns sites e canais para o despertar
 
 ## Índex 
 
