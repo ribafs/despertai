@@ -1,9 +1,9 @@
 # Despertar da Consciência
 
-## Informações úteis que tenho colhido de alguns sites e canais para o despertar
 ## EM CONSTRUÇÃO
 
-## Informações úteis para o despertar
+## Informações úteis que tenho colhido para o despertar 
+De alguns sites, grupos do Facebook e canais
 
 ## Índex 
 
@@ -18,6 +18,7 @@
 - [Família](https://github.com/ribafs/despertai/tree/main/Familia)
 - [História](https://github.com/ribafs/despertai/tree/main/Historia)
 - [Livros](https://github.com/ribafs/despertai/tree/main/Livros)
+- [Outras informações](Outras)
 - [OEvento](https://github.com/ribafs/despertai/tree/main/OEvento)
 - [Referências](https://github.com/ribafs/despertai/tree/main/Referencias)
 - [Saúde](https://github.com/ribafs/despertai/tree/main/Saúde)
