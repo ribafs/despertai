@@ -1,5 +1,5 @@
 # Despertar da Consciência
-
+## AGUARDE POR FAVOR
 ## Informações úteis para o despertar
 
 ## Índex 
