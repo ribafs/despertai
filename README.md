@@ -18,7 +18,7 @@ De alguns sites, grupos do Facebook e canais
 - [Família](https://github.com/ribafs/despertai/tree/main/Familia)
 - [História](https://github.com/ribafs/despertai/tree/main/Historia)
 - [Livros](https://github.com/ribafs/despertai/tree/main/Livros)
-- [Outras informações](Outras)
+- [Outras informações](https://github.com/ribafs/despertai/tree/main/Outras)
 - [OEvento](https://github.com/ribafs/despertai/tree/main/OEvento)
 - [Referências](https://github.com/ribafs/despertai/tree/main/Referencias)
 - [Saúde](https://github.com/ribafs/despertai/tree/main/Saúde)
