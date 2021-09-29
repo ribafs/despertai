@@ -1,7 +1,7 @@
 # Despertar da Consciência
-## -- AGUARDE POR FAVOR --
+
 ## Informações úteis que tenho colhido de alguns sites e canais para o despertar
-# Despertar da Consciência - EM CONSTRUÇÃO
+## EM CONSTRUÇÃO
 
 ## Informações úteis para o despertar
 
