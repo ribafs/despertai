@@ -15,6 +15,6 @@ Estou muito esperançoso das novas ações do PAI para a correção das anomalia
 Queridos irmãos fico muito contente com as novas visões que o PAI nos revela sobre tudo o que será manifesto na Terra, tenham muito conforto com as mudanças e saibam que elas são necessárias para a reintegração do homem na Terra.
 Seu irmão Yeshua falou com você
 
-Crédito
+## Crédito
 
 Welbert Pereira Santos
