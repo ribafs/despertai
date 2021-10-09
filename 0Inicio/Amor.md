@@ -1,4 +1,4 @@
-## APENAS O AMOR PRATICADO IMPESSOALMENTE OS DESBLOQUEARÁ...
+APENAS O AMOR PRATICADO IMPESSOALMENTE OS DESBLOQUEARÁ...
 
 Gillberto Angelo
 
@@ -45,4 +45,6 @@ Sejam o amor .Sejam conscientes. Acordem !
 Vocês ADAM e todos os seres que constituem essa Biosfera Planetária (órgão cósmico), são profundamente respeitados e aceitos . Vocês nunca foram pecadores! São apenas almas-consciências que permaneceram por éons sobre a incompreensão da luz....
 Lembrem-se, alterem seu DNA, praticando o amor impessoalmente, e somente assim estarão se permitindo enquanto células espirituais, se manifestarem verdadeiramente.
 
-Abraços de corações à corações!!!
+Abraços de coração à coração!!!
+
+Crédito - Gilberto

@@ -1,4 +1,4 @@
-## Por que o despertar da consciência é importante?
+Por que o despertar da consciência é importante?
 
 Quando iniciei o despertar da minha consciência há poucos anos atraz eu fiquei maravilhado e saí estudando tudo que encontrava, textos, vídeos, etc e me filiando a vários grupos e canais da área.
 
