@@ -30,3 +30,8 @@ Como praticamente minha vida inteira trabalhei com informática eu inicialmente 
 	Trasição
 	UFO
 
+
+
+Referência maior
+https://www.sementesdasestrelas.com.br/
+https://www.youtube.com/watch?v=bgKckeYrjPA
